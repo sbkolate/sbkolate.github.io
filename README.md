@@ -1,1 +1,0 @@
-# sbkolate.github.io
